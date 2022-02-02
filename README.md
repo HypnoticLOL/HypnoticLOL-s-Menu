@@ -5,4 +5,4 @@ auto anti afk<br>
 gonna be a auto lesson skipper for u lazy assess(if this is possible)<br>
 as cupidity calls it "those stupid ass new colors"
 ![cupid](https://user-images.githubusercontent.com/96861065/152199773-79c2421d-60c2-42fc-9d01-851495b5c82c.png)
-no hate on cupidity hes the reason that iready overload and hypnotics menu works
+no hate on cupidity hes the reason that iready overload and hypnotics menu works & I was doing summin that could have had the entire menu patched there
