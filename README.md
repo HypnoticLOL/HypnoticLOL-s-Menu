@@ -1,3 +1,4 @@
+THIS IS A REPO OF MY WEBSITE SO IF THIS DOSNT WORK IT WILL BE WORKING HERE https://hypnoticlols-menu.hypnoticlol.repl.co/<br>
 # HypnoticLOL-s-Menu
 https://github.com/cupiditys/iReady-Overload is the og version
 Whats new about mine:<br>
